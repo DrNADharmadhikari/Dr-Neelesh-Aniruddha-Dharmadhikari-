@@ -67,5 +67,5 @@ Creative Commons Attribution–NonCommercial 4.0 International License (CC BY-NC
 This means you may share and adapt the material with attribution, but not for commercial use.
 Full License: https://creativecommons.org/licenses/by-nc/4.0/
 ________________________________________
-🏅 Signature Quote by Dr. Neel
+🏅 Signature Quote by Dr. Neelesh Aniruddha Dharmadhikari
 “The success stories make an unknown into a well-known individual.” — Dr. Neelesh Aniruddha Dharmadhikari
